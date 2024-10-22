@@ -1,1 +1,1 @@
-asdasdsaasddsdssad
+Merhaba, düzeltme yapıldı.
